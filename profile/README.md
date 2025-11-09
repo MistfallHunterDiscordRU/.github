@@ -2,6 +2,7 @@
 
 Мы рады пригласить тебя на **основной Discord-сервер для русских игроков Mistfall Hunter**. Здесь ты найдёшь активное сообщество, полезные гайды и увлекательные мероприятия.
 **Присоединяйся по ссылке: [https://discord.gg/PBg9HHX4Fm](https://discord.gg/PBg9HHX4Fm)**
+
 **Присоединяйся по ссылке: [https://discord.gg/PBg9HHX4Fm](https://discord.gg/PBg9HHX4Fm)**
 
 ---
