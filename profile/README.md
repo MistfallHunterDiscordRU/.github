@@ -6,7 +6,7 @@
 
 **Присоединяйся по ссылке: [https://discord.gg/PBg9HHX4Fm](https://discord.gg/PBg9HHX4Fm)**
 
-![screenshot](https://i.postimg.cc/SN5WsF7c/f256a4ac8e10308cbc1b74f2c9c4d955633f4305.png)
+![screenshot](https://i.postimg.cc/3RKG6KYK/mistfall-hunter-454x333.jpg)
 
 ---
 
@@ -27,4 +27,5 @@
 Переходи по **[ссылке для вступления: https://discord.gg/PBg9HHX4Fm](https://discord.gg/PBg9HHX4Fm)** и становись частью нашего дружного сообщества!
 
 **Mistfall Hunter Discord RU** – это **главный русский сервер**, где каждый найдёт поддержку и новых друзей. 🇷🇺
+
 
